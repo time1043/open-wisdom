@@ -170,6 +170,121 @@
 
 ### oral skills
 
+
+
+
+
+## The Intern
+
+- The Intern
+
+  观望态度
+  
+  > So this really big CEO named Townsend the one everyone said would never be interested in us, because we weren't big enough for him? 
+  >
+  > Yeah? 
+  >
+  > We just found out he's beyond interested. 
+  >
+  > Exciting. 
+  >
+  > Everyone's flipping out about it, but you know I'm still on the fence at best. 
+  
+  开始动摇 掌控局面
+  
+  > I figure if someone else can call some of the shots at work, then maybe we can get back to where we were 18 months ago. 
+  
+  改变心意
+  
+  > I slept on it. 
+
+
+
+
+
+### Analysis of words and sentences
+
+- So this really big CEO named Townsend 
+
+  the one everyone said would never be interested in us, because we weren't 
+
+  big enough for him? 
+  
+- We just found out 
+
+  he's `beyond` interested.  他远不止有兴趣
+
+  ```
+  Example: He's beyond proud of you. 他超级以你为荣
+  Example: This is beyond ridiculous. 这太荒唐了
+  ```
+  
+- Everyone's `flipping out` about it.  非常激动
+
+  ```
+  Example: I think you should come over, dad's really flipping out. 非常生气
+  Example:
+  Example: - What's going on? - Don't flip out, okay? 别激动
+  ```
+
+  I'm still `on the fence` `at best`.  最多是 持观望态度 (*还在栅栏上*)
+
+  ```
+  Example: I guess her not telling you means that she's on the fence about it. 
+  Example: - You knew you had it in me all along. - Honestly, I was on the fence. 
+  ```
+
+  
+
+
+
+---
+
+- `I figure` if someone else can call some of `the shots` at work,  我认为 控制/操纵
+
+  then maybe we can `get back to` where we were 18 months ago.  回到
+
+  ```
+  Example: So I figure if I work, the girls can stay in private school. 
+  Example: 
+  
+  `I still feel like` it's the right thing to do.  我认为
+  Example: - How you feeling? - I feel like ... like I can handle it. 
+  Example: I feel like ... I should explain. 
+  
+  
+  ```
+
+- I `slept on` it.  考虑(*睡在上面*)
+
+  ```
+  Example: Could I sleep on it and I'll let you know tomorrow? 让我考虑
+  Example: 
+  Example: 
+  ```
+
+- I haven't called Townsend yet, but I still feel like it's the right thing to do. 
+
+- I never had anything like this in my life, not many people do. It's dream, isn't it? 
+
+- And you're give that up `in the hopes that` your husband will stop `having an affair`.  是为了
+
+- I don't see how that `adds up`.  一点也不合理
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Anne Hathaway
 
 - Anne Hathaway
